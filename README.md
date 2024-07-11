@@ -1,0 +1,1 @@
+# AzureStatic_20240711
